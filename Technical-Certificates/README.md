@@ -1,1 +1,1 @@
-Technical skills and certifications
+Technical courses and professional skill development certificates.
